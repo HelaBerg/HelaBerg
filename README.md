@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HelaBerg
-- 👀 I’m interested in hårdkåd
+- 👀 I’m interested in hårdkåd and fast little cars
 - 🌱 I’m currently learning brutal software hacking (zip bomb etc.)
 - 💞️ I’m looking to collaborate on roblox white/gray hacking with lua
 - 📫 How to reach me skype: wh1teD3thHcker
